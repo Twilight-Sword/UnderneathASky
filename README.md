@@ -8,7 +8,7 @@
 
 ^《 Following this: I'll probably ask you politely in whisp if I could sit with you ( with the same fandom as you, if you want to or if Inhave one ) so I could hide and go AFK. 》
 
-《 Usually AFK or Semi-AFK on PT due to watching YT, just whisper me ( compliments are okay too ). 》
+《 Usually AFK or Semi-AFK on PT due to watching YT,  just whisper me ( compliments are okay too ). 》
 
 ^《 Following this: I have cos/skins that says I'm AFK/Semi-AFK, please keep that in mind. Also, please whisper me if I'm AFK, I'll probably respond more better that way so your messages wouldn't get burried. 》
 
