@@ -4,9 +4,7 @@
 
 《 Dry to talk to, unless I've talked to you before or I connect with your interests with mine's. I'm socially awkward, please take note. 》
 
-《 If I don't sit with you that means I don't know you personally ( no offense ), or I ( or you ) don't have a 'c+h' tag 》
-
-^《 Following this: I'll probably ask you politely in whisp if I could sit with you ( with the same fandom as you, if you want to or if I have one ) so I could hide and go AFK. 》
+《 I usually sit with friends and go AFK, I don't want weird things happening in front of me while AFK, lastly I don't tolerate uncomfortable scenarios and would temporarily hide you. 》
 
 《 Usually AFK or Semi-AFK on PT due to watching YT,  just whisper me ( compliments are okay too ). 》
 
