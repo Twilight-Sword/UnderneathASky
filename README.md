@@ -10,7 +10,7 @@
 
 ^《 Following this: I have cos/skins that says I'm AFK/Semi-AFK, please keep that in mind. Also, please whisper me if I'm AFK, I'll probably respond more better that way so your messages wouldn't get burried. 》
 
-《 I love doing cos/skins similar with friend's particular interests on Pony Town, if you wanna do so w/ me, feel free to ask. Ships are limited unless we're very close and know your ship preferences or I'm neutral about your fave ships. 》
+《 I love doing cos/skins similar with friend's particular interests on Pony Town, if you wanna do so w/ me, feel free to ask. Ships are limited unless we're very close, if I know your ship preferences, or I'm neutral about your favorite ships. 》
 
 《 If we're friends on Pony Town, tell me, bc I usually don't recognize who adds me. Whichever cos you recognize me as or if a have my socials on it. ( I usually forget to add notes on my end, especially if we never conversed before, I sincerely apologize ). 》
 
