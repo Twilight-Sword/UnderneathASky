@@ -11,3 +11,5 @@
 ^《 Following this: I have cos/skins that says I'm AFK/Semi-AFK, please keep that in mind. Also, please whisper me if I'm AFK, I'll probably respond more better that way so your messages wouldn't get burried. 》
 
 《 I love doing cos/skins similar with friend's particular interests on Pony Town, if you wanna do so w/ me, feel free to ask, ships are limited unless we're very close or I'm neutral about your fave ships. 》
+
+《 I don't add friends or add you back, unless I've talked to you more that five times ( that's the bare minimum ). If you're just gonna add me for friend count, I couldn't care less, because there are super, duper rare, or once in a blue moon times that I do initiate a conversation. 》
