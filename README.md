@@ -1,6 +1,6 @@
 **RBYI, because some might misunderstand me**
 
-《 Do not ***COPY*** or **take inspiration** from my skins/cosplays, I always done mine's by myself and my hard work, have originality :/ . 》
+《 Do not ***COPY*** or **take inspiration** from my skins/cosplays, I always done mine's by myself and my hard work, have originality :/ .  》
 
 《 Mentally neutral chaotic and silly, unless I vibe with you. My mood and social battery affects how I interact with you, that goes the same if you brought me out of my comfort zone. 》
 
