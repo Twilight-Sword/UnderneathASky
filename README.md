@@ -1,4 +1,4 @@
-**Simpler RBYI, because some might misunderstand me**
+**RBYI, because some might misunderstand me**
 
 《 Mentally neutral chaotic and silly, unless I vibe with you. My mood and social battery affects how I interact with you, that goes the same if you brought me out of my comfort zone. 》
 
