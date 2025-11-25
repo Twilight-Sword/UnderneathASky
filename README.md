@@ -14,7 +14,7 @@
 
 《 I love doing cos/skins similar with friend's particular interests on Pony Town, if you wanna do so w/ me, feel free to ask. Ships are limited unless we're very close, if I know your ship preferences, or I'm neutral about your favorite ships. 》
 
-《 If we're friends on Pony Town, tell me, bc I usually don't recognize who adds me. Whichever cos you recognize me as or if a have my socials on it. ( I usually forget to add notes on my end, especially if we never conversed before, I sincerely apologize ). 》
+《 If we're friends on Pony Town, tell me, bc I usually don't recognize who adds me. Whichever cos you recognize me as, or if I have my socials on it. ( I usually forget to add notes on my end, especially if we never conversed before, I sincerely apologize ). 》
 
 《 If you're just gonna add me for friend count, I couldn't care less, because there are super, duper rare, or once in a blue moon occurrence that *I* do initiate a conversation with a stranger, especially if I'm in the mood. 》
 
